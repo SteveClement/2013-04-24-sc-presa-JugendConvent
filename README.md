@@ -27,3 +27,5 @@ Wie verständigt und versteht man sich in einer modernen Gesellschaft zwischen G
 Manche haben den Eindruck, dass sich die Kommunikationswege, in einer sich rasant entwicklenden Gesellschaft,  unwiderruflich voneinander trennen, denn jede Generation scheint ihre eigenen Kommunikationsstrategien zu entwickeln. Sind diese miteinander kompatibel?
 Und spielen die modernen Technologien hier eine Rolle?
 Viele Fragen – ein Workshop!
+
+![Image plenum](images/CGJL_MdL07_0539.jpg)
